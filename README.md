@@ -1,5 +1,5 @@
 # Medical Reserve Partnership (MRC) - HOSA (Future Health Leaders)
-<img src="Untitled presentation.png" alt="Project Screenshot" width="1000">
+<img src="Untitled presentation.png" alt="Project Screenshot" width="1050">
 ## MRC Partnership Overview
 This event involves partnering with our local Medical Reserve Corps (MRC) to promote public health awareness within the community. Our group collaborates specifically with the Loudoun County Medical Reserve Corps, guided by MRC Volunteer Coordinator Ms. Elizabeth Thurman. Together, we strategize and plan impactful future events that highlight the importance of public health and volunteer engagement.
 
