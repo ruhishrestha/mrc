@@ -28,4 +28,4 @@ On **November 30th**, we worked with the MRC as well as a few HOSA members to cr
 ## Our Collective Impact 
 However, we went beyond our initial events. We completed various emergency courses such as FEMA as well as promoting our public health efforts through educational social media posts. Overall, in the past 2 months we have impacted our community and HOSA chapter by spending a total of 35 hours in partnership and impacting 150+ people ranging from students at Academies of Loudoun to patients at INOVA Hospital!
 
-<img src="soon.png" alt="Project Screenshot" width="1050">
+<img src="Untitled presentation (9).png" alt="Project Screenshot" width="1050">
