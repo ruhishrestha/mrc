@@ -1,5 +1,5 @@
 <img src="Untitled presentation.png" alt="Project Screenshot" width="1050">
-<img src="Untitled presentation (6).png" alt="Project Screenshot" width="1050">
+<img src="Untitled presentation (7).png" alt="Project Screenshot" width="1050">
 
 ## MRC Partnership Overview
 
@@ -23,7 +23,8 @@ On **November 27th**, we visited the Loudoun County Homeless Shelter and prepare
 
 On **November 30th**, we worked with the MRC as well as a few HOSA members to create and distribute positive message cards for INOVA hospital patients. Specifically, we distributed cards to patients within the PCU which is the Progressive Care Unit, this gave participants a way to help patients as well as gain an insight on the medical field by giving them an opportunity to interact with various health professionals in the unit. We were able to distribute cards to the entire unit which was around 24 patients! 
 
-<img src="Untitled presentation (7).png" alt="Project Screenshot" width="1050">
+<img src="Untitled presentation (6).png" alt="Project Screenshot" width="1050">
+
 
 
 
