@@ -1,4 +1,3 @@
-# Medical Reserve Partnership (MRC) - HOSA (Future Health Leaders)
 <img src="Untitled presentation.png" alt="Project Screenshot" width="1050">
 
 ## MRC Partnership Overview
