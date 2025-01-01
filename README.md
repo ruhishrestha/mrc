@@ -7,7 +7,7 @@ My team (DeepshikaSai Boppisetti, Nileena Chavva, & Nivedita Thulasiraman) and I
 
 <img src="Untitled presentation (3).png" alt="Project Screenshot" width="1050">
 
-# What have we done so far?
+# Our Journey So Far
 
 On **November 16th**, we held a walkathon at the Deaver Dam Reservoir with our MRC unit. Through this event we were able to educate people on how exercise, hydration, and probiotic play a vital role in maintaining your gut and hormonal health. 
 
@@ -22,6 +22,8 @@ On **November 27th**, we visited the Loudoun County Homeless Shelter and prepare
 <img src="Untitled presentation (6).png" alt="Project Screenshot" width="1050">
 
 On **November 30th**, we worked with the MRC as well as a few HOSA members to create and distribute positive message cards for INOVA hospital patients. Specifically, we distributed cards to patients within the PCU which is the Progressive Care Unit, this gave participants a way to help patients as well as gain an insight on the medical field by giving them an opportunity to interact with various health professionals in the unit. We were able to distribute cards to the entire unit which was around 24 patients! 
+
+## Our Collective Impact 
 
 <img src="Untitled presentation (7).png" alt="Project Screenshot" width="1050">
 
