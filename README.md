@@ -8,7 +8,7 @@ This event involves partnering with our local Medical Reserve Corps (MRC) to pro
 # What have we done so far?
 
 On November 16th, held a walkathon at the beaver dam reservoir with partnership with MRC. Through this event we were able to educate people on how exercise, hydration, and probiotic play a vital role in maintaining your gut and hormonal health. 
-<img src="Untitled presentation (1).pdf" alt="Project Screenshot" width="1050">
+<img src="Untitled presentation (2).png" alt="Project Screenshot" width="1050">
 
 On November 20th, we distributed motivational flyers to help raise awareness about the importance of maintaining good gut health. The posters contain key facts and practical tips about our gut, which we believe is important for everyone to know. With our colorful design, the message is both understandable and memorable. By sharing simple yet beneficial facts about gut health, we hope to inspire healthier habits in our community.
 
