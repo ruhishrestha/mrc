@@ -2,7 +2,7 @@
 
 ## MRC Partnership Overview
 
-This event involves partnering with our local Medical Reserve Corps (MRC) to promote public health awareness within the community. Our group (Amal Budal, DeepshikaSai Boppisetti, Nileena Chavva, Nivedita Thulasiraman, Ruhi Shrestha, & Syeda Zahra) collaborates specifically with the Loudoun County Medical Reserve Corps, guided by MRC Volunteer Coordinator Ms. Elizabeth Thurman (pictured on the right). Together, we strategize and plan impactful future events that highlight the importance of public health and volunteer engagement.
+My team and I workedpartnering with our local Medical Reserve Corps (MRC) to promote public health awareness within the community. Our group (Amal Budal, DeepshikaSai Boppisetti, Nileena Chavva, Nivedita Thulasiraman, Ruhi Shrestha, & Syeda Zahra) collaborates specifically with the Loudoun County Medical Reserve Corps, guided by MRC Volunteer Coordinator Ms. Elizabeth Thurman (pictured on the right). Together, we strategize and plan impactful future events that highlight the importance of public health and volunteer engagement.
 
 <img src="Untitled presentation (3).png" alt="Project Screenshot" width="1050">
 
